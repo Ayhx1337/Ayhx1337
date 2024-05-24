@@ -1,3 +1,3 @@
 #### for contact
 
-- Telegram: [cankat](https://t.me/Ayhhuu)
+- Telegram: [Ayhu](https://t.me/Ayhhuu)
